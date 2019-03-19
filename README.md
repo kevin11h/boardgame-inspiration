@@ -7,3 +7,5 @@
 + https://fivethirtyeight.com/features/designing-the-best-board-game-on-the-planet/
 
 + https://fivethirtyeight.com/tag/board-games/
+
++ https://schedule.gdconf.com/session/board-game-design-day-keyforge-creating-the-worlds-first-unique-deck-game/864954
