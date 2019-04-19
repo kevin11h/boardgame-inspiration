@@ -9,3 +9,6 @@
 + https://fivethirtyeight.com/tag/board-games/
 
 + https://schedule.gdconf.com/session/board-game-design-day-keyforge-creating-the-worlds-first-unique-deck-game/864954
+
+
++ https://twitter.com/HODLFUEL/status/1119364144556314625
